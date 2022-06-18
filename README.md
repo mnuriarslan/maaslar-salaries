@@ -1,0 +1,1 @@
+# maaslar-salaries
